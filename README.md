@@ -1,4 +1,4 @@
 # week3_hw3-CaglaEfendioglu
-![](https://github.com/week3_hw3-CaglaEfendioglu/(https://media.giphy.com/media/zGb8erPujv7PaBCFJn/giphy.gif)
+(https://github.com/week3_hw3-CaglaEfendioglu/(https://media.giphy.com/media/zGb8erPujv7PaBCFJn/giphy.gif)
 
 
